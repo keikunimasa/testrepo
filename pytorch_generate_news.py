@@ -1,0 +1,1 @@
+# https://note.com/virtual_surfer/n/na815165b0134
